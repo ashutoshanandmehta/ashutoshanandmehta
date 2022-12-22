@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ashutoshanandmehta
 - 👀 I’m interested in Finance & Analysis
-- 🌱 I’m currently learning 1st Year Courses at IIT Kanpur
+- 🌱 I’m currently learning 1st Year UG Programme at IIT Kanpur
 - 📫 How to reach me ... Mail ID:- anandmehtaashutosh@gmail.com
 
 <!---
